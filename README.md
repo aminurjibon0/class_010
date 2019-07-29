@@ -1,2 +1,2 @@
 # class_010
-tinyone Website : 
+tinyone Website : https://aminurjibon0.github.io/class_010/
